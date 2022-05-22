@@ -1,0 +1,2 @@
+# cotidiano
+the blind side
